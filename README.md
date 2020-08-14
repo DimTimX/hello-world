@@ -1,2 +1,4 @@
 # hello-world
-First day
+
+Hi People[♥]
+This my first day here iam trying my luck wich me good luck♥
